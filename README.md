@@ -5,17 +5,17 @@
 
 - 🔭 I’m currently working on **on my heart**
 
-- 🌱 I’m currently learning **foundations of computing**
+- 🌱 I’m currently learning **about the unseen creativity**
 
-- 👯 I’m looking to collaborate on **how to rob the rich**
+- 👯 I’m looking to collaborate on **any diruptive ideas and systems**
 
-- 🤝 I’m looking for help with **finding love**
+- 🤝 I’m looking for help with **finding a midwife**
 
-- 💬 Ask me about **if the earth is flat**
+- 💬 Ask me about **the shape of the earth**
 
-- 📫 How to reach me **diabilasekou@gmail.com**
+- 📫 How to reach me **_____@_____.com**
 
-- ⚡ Fun fact **I am a flat earther**
+- ⚡ Fun fact **I am actually breathing at this exact moment**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
