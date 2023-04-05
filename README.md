@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **the shape of the earth**
 
-- 📫 How to reach me **_____@_____.com**
+- 📫 How to reach me **enterahut.com**
 
 - ⚡ Fun fact **I am actually breathing at this exact moment**
 
