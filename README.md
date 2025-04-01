@@ -1,20 +1,4 @@
-<h1 align="center">Hi 👋, I'm Sekou Diaby</h1>
-
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=thethiccckening&label=Profile%20views&color=0e75b6&style=flat" alt="thethiccckening" /> </p>
-
-- 🔭 I’m currently working on **on my heart**
-
-- 🌱 I’m currently learning **about the unseen creativity**
-
-- 👯 I’m looking to collaborate on **any diruptive ideas and systems**
-
-- 🤝 I’m looking for help with **finding a midwife**
-
-- 💬 Ask me about **the shape of the earth**
-
-- 📫 How to reach me **enterahut.com**
-
-- ⚡ Fun fact **I am actually breathing at this exact moment**
+enterahut.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
